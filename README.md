@@ -1,0 +1,2 @@
+# premium-kiln-cast-glass-001-kiln-casting-glass-mold-inve
+Tired of losing track of firing schedules, mold investments, and batch results across scattered notes and spreadsheets? This Kiln Casting Glass &amp; Mold Invest Craft Workshop Notion template turns workflow chaos into a streamlined studio command center.  It eliminates the confusion of managing multiple kiln loads and mold cure cycles by centralizing
